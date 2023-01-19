@@ -1,7 +1,8 @@
 # IP-Pinger
 IP Pinger (Cracked)
 
-!!!-ZIP Key : https://discord.gg/7p5X9b3xb4![Bild_2023-01-19_124904474](https://user-images.githubusercontent.com/109398018/213434869-27f0ce9b-5509-4993-9272-6e740e458396.png)
+!!!-ZIP Key : https://discord.gg/7p5X9b3xb4
+
 
 
                     Swezy Daddy <3
